@@ -11,3 +11,8 @@ Ana Panamito
 
 
 ![image](https://github.com/user-attachments/assets/0978269d-db80-4a19-9cdb-7ae1d62c32c7)
+
+![image](https://github.com/user-attachments/assets/c988d6c7-3837-4e20-9613-19fae329c96f)
+
+![image](https://github.com/user-attachments/assets/0d879d44-f5df-4e73-9ea2-834865f172e1)
+
